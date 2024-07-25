@@ -1,1 +1,1 @@
-Hello, i'miminnusa.
+Hello, i'm miminnusa.
